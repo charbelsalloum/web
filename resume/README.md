@@ -1,4 +1,4 @@
-# [CHARBEL SALLOUM](https://charbelsalloum.info) 
+# [RESUME](https://charbelsalloum.info) 
 #### [DOWNLOAD CV](https://charbelsalloum.info/storage/CharbelSalloum_CVweb.pdf)
 
 ## WORK EXPERIENCE 
