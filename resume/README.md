@@ -1,12 +1,16 @@
-# [Charbel Salloum](https://charbelsalloum.info) 
+# [CHARBEL SALLOUM](https://charbelsalloum.info) 
+#### [DOWNLOAD CV](https://charbelsalloum.info/storage/CharbelSalloum_CVweb.pdf)
 
-[Download CV](https://charbelsalloum.info/storage/CharbelSalloum_CVweb.pdf)
-
-# WORK EXPERIENCE 
-
-
-# EDUCATION
+## WORK EXPERIENCE 
+### HUMAN RIGHTS WATCH
+...........
 
 
 
-# PROFESSIONAL DEVELOPMENT, SKILLS, & LANGUAGES 
+### INTERSOS
+.................
+
+## EDUCATION
+### AMERICAN UNIVERSITY OF BEIRUT
+
+## PROFESSIONAL DEVELOPMENT, SKILLS, & LANGUAGES 
