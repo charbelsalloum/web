@@ -1,7 +1,7 @@
-# [https://charbelsalloum.info](https://charbelsalloum.info)
-Currently at Human Rights Watch. Fighting war crimes.  
+# [https://charbelsalloum.info](https://charbelsalloum.info) | RESUME
 
-# HRW 
+[Download CV](https://charbelsalloum.info/storage/CharbelSalloum_CVweb.pdf)
 
-## RESEARCH SUPPORT
-#### 
+# WORK EXPERIENCE 
+# EDUCATION
+# PROFESSIONAL DEVELOPMENT, SKILLS, & LANGUAGES 
